@@ -24,7 +24,7 @@ High intensity led lights, camera ring light.
 Package includes:
 
 In the package there is one microscope screen with camera mounted on it, power adapter, power cable, stand, stand lights, base stand, base stand light panel, sample slides, remote, SD card, SD card reader, screws and mounts.
-
+https://andonstar.com/product/ad210-10-1-inch-lcd-digital-microscope/
 Some biologic samples like pine stem, honeybee wing are provided to examine the full capabilities. And this sample kit is good to go for the first review, but I also include some electronics stuff here. So the package includes almost everything which is required to inspect any biological and electronic sample.
 
 Remote controls:
